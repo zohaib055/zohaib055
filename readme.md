@@ -1,4 +1,4 @@
-Full-Stack software engineer with over 10+ years of experience in Development and Project Management a successful proven track record of managing large scale software engineering projects to support cloud deployments and integrations.Highly adept in leading engineer teams to achieve software development upgrades and increase business efficiency while delivering world-class solutions to clients.
+Full-Stack software engineer with over 12+ years of experience in Development and Project Management a successful proven track record of managing large scale software engineering projects to support cloud deployments and integrations.Highly adept in leading engineer teams to achieve software development upgrades and increase business efficiency while delivering world-class solutions to clients.
 
 
 <h3>Reach out me at</h3>
